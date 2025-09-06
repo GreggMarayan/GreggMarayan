@@ -1,1 +1,1 @@
-![dikster]([https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif](https://tenor.com/c7QG8tCgYQd.gif)
+![dikster](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExMmtkdHZ6MWZ2MjJlM2cyYWFlb3E1YTg5bWxwdTYzdXAyZTNvNXVwdCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Mp0xEFTkY0l3vw2Sit/giphy.gif)
